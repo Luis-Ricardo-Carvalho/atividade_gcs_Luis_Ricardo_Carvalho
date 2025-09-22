@@ -1,1 +1,0 @@
-# atividade_gcs_Luis_Ricardo_Carvalho
